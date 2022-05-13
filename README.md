@@ -11,3 +11,6 @@ Labor is easy. Class is so basic and cut marks on things that you need a lot of 
 [![Final Assigment](http://img.youtube.com/vi/uz-AQyVK7tI/1.jpg)](https://youtu.be/uz-AQyVK7tI "Final Assigment")
 [![Final Assigment](http://img.youtube.com/vi/SQlAOl8tfWU/1.jpg)](https://youtu.be/SQlAOl8tfWU "Final Assigment")
 [![Final Assigment](http://img.youtube.com/vi/i0myUDhPXgw/1.jpg)](https://youtu.be/i0myUDhPXgw "Final Assigment")
+
+### Notes
+
